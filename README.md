@@ -1,1 +1,0 @@
-# instituto-curvelo.github.io
